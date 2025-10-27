@@ -11,3 +11,5 @@
 ## Instructions
 
 Chop up the avocado, tomato, and onion as finely as you can.
+Mix them all together.
+Enjoy!
