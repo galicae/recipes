@@ -7,9 +7,8 @@
 * pepper
 * tomato
 * onion
+* coriander
 
 ## Instructions
-
-Chop up the avocado, tomato, and onion as finely as you can.
-Mix them all together.
-Enjoy!
+Chop up the avocado, tomato, and onion as finely as you can. Don't forget to add seasonings at the very end so the tomatoes don't sweat because of the salt.
+Try to enjoy! But this will be hard when coriander is included.
