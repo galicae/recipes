@@ -1,3 +1,4 @@
-##Ingredients
-*chickpeas
-*tahini
+## Ingredients
+
+* chickpeas
+* tahini
