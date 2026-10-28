@@ -4,7 +4,7 @@
 - 2 avocados
 - 1 small onion
 - 1 tomato
-- 1 lime
+- 1 lemon
 - salt and pepper to taste
 - 2 cloves of garlic
 - cumin to taste
